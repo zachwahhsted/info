@@ -1,8 +1,5 @@
 # info
-my ponytown things yea
+dunno
 
-I UNFRIEND IF WE DONT INTERACT OFTEN/AT ALL, PLS DONT TAKE PERSONALLY
-
-uhmm i think im real friendly and approachable so talk to me 🍗
-
-thats it!
+im zach i like a lot of things
+talk to me i like to speak to others
